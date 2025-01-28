@@ -1,4 +1,4 @@
-# Research Internship Links in India
+# Research Internship in India
 All are links for respective college programs, some of them are 2024 links, which will be updated soon by the colleges itself on the same link!
 
 1. **JNCASR** :- [Link](https://lnkd.in/d-Gu8ykN)
